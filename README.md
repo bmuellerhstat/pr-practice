@@ -1,5 +1,5 @@
 ## Mr. Mueller's Ideal Afternoon
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+The best way to relax after a long day is to take a nap and to watch dramas.
 
-The best ice cream is mint chocolate chip.
+The best time to take a nap is in the afternoon.
