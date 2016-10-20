@@ -1,5 +1,5 @@
 ## Mr. Mueller's Ideal Afternoon
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+The best way to relax after a long day is to watch some nba game and then sleep.
 
-The best ice cream is mint chocolate chip.
+The funnest team to watch is none other than the L.A. Clippers.
