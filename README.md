@@ -2,4 +2,4 @@
 
 The best way to relax after a long day is to eat ice cream and watch a movie.
 
-The best ice cream is mint chocolate chip.
+The best way is to eat popcorn and watch your favorite movie.
