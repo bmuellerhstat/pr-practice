@@ -1,4 +1,4 @@
-## Mr. Mueller's Ideal Afternoon
+## Manny's Ideal Afternoon
 
 The best way to relax after a long day is to eat a big meal and go to sleep.
 
