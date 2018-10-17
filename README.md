@@ -1,5 +1,5 @@
 ## Mr. Mueller's Ideal Afternoon
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+The best way to relax after a long day is to Eat pasta and watch youtube
 
-The best ice cream is mint chocolate chip.
+Rotini is the best shape of pasta.
