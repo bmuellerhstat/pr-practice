@@ -2,4 +2,4 @@
 
 The best way to relax after a long day is to eat at mcdonalds
 
-The best meal is the bigmac with fries and a grape soda
+The best meal is a bigmac with fries and a grape soda
