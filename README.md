@@ -1,5 +1,4 @@
-## Mr. Mueller's Ideal Afternoon
+## Emmanuel's Ideal Afternoon
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
-
-The best ice cream is mint chocolate chip.
+Have something to eat, reasonably some cookies or cereal.
+Turn on the TV and start playing Yakuza or JJBA EoH. Work on the D&D stat blocks for my JJBA D&D campaign and a bit of the lore/premise/story.
