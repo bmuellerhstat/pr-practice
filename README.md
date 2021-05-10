@@ -1,5 +1,5 @@
-## Mr. Mueller's Ideal Afternoon
+## Ibrokhim's Ideal Afternoon
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+ _The best way to relax is doing the yoga every morning its good for your health_
 
-The best ice cream is mint chocolate chip.
+```Carvel is the best icecream in the Brooklyn```
