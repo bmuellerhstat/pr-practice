@@ -1,5 +1,5 @@
-## Mr. Mueller's Ideal Afternoon
+## Hanna's Ideal Afternoon
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+The best way to relax after a long day is to eat a homecooked meal.
 
-The best ice cream is mint chocolate chip.
+The best homecooked meal is fried noodles.
