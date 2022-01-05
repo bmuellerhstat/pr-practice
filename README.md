@@ -1,5 +1,5 @@
-## Mr. Mueller's Ideal Afternoon
+## A message to Mr. Mueller's 
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+Finally made it, did you? I'll be honest: I never though you'd make it this far. At least I can finally take my Mini Stars back! 
 
-The best ice cream is mint chocolate chip.
+It's the end of the road for all of you! My mightiest minion, Chain Chomp, will defeat you all!
