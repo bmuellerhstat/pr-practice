@@ -2,4 +2,4 @@
 
 The best way to relax after a long day is to eat ice cream, watch a movie, and to sleep.
 
-The best ice cream is mint chocolate chip.
+The best ice cream flavor is strawberry.
