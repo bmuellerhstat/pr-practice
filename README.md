@@ -1,8 +1,9 @@
-## Mr. Mueller's Ideal Afternoon
+## Alan's Ideal Afternoon 
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+The best way to spend an afternoon is to sleep 
 
-The best ice cream is mint chocolate chip.
+Sleeping is good because it relaxes your body 
 
-The best way to relax after a long day is to sleep or play games 
+Sleep is better than anything else 
+
 
