@@ -1,5 +1,9 @@
 ## Mr. Mueller's Ideal Afternoon
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+The best way to relax after a long day is to take a shower
 
-The best ice cream is mint chocolate chip.
+a cold shower
+
+It will make me feel very relax after it
+
+TAKING A COLD SHOWER IS GOOD!!!!!!!
