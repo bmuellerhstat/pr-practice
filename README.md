@@ -1,5 +1,7 @@
-## Mr. Mueller's Ideal Afternoon
+## Ideal Afternoon
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+Mr. Mueller's favorite way to relax after a long day is to eat ice cream and watch a movie.
 
-The best ice cream is mint chocolate chip.
+His favorite ice cream is mint chocolate chip.
+
+Though, we do not have this luxary because of school so I do homework while I slowly lose my sanity.
