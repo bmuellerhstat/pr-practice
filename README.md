@@ -1,5 +1,5 @@
-## Mr. Mueller's Ideal Afternoon
+## Benjamin's Ideal Afternoon
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+The best way to chill after a long day is to eat ice cream and watch Netflix.
 
-The best ice cream is mint chocolate chip.
+I love mint flavored ice cream!
