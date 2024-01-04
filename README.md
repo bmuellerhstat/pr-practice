@@ -1,5 +1,5 @@
-## Amari's Ideal Afternoon
+## Mr. Mueller's Ideal Afternoon
 
-The best way to relax after a long day is to eat dinner and go to sleep.
+The best way to relax after a long day is to eat ice cream and watch a movie.
 
-The best food to eat for dinner is shrimp alfredo.
+The best ice cream is mint chocolate chip.
