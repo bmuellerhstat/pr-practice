@@ -7,4 +7,4 @@ The best ice cream is mint chocolate chip.
 
 ## Evangelina's Opinion
 
-The best way to relax is to  cd` into the repo 
+The best way to relax is to  `cd` into the repo 
