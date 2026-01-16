@@ -1,5 +1,5 @@
-## Mr. Mueller's Ideal Afternoon
+## Emmanuel's ideal afernoon
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+The best way to relax after a long day is to play videogames and eat pizza
 
-The best ice cream is mint chocolate chip.
+The best pizza is a pepperoni pizza and the best videogame is god of war ragnorok
