@@ -7,4 +7,4 @@ A social relaxing long day
 
 
 A chill me time relaxing long day
-- Is to order some take out food and your favorite video games
+- Is to order some take out food and play your favorite video games
