@@ -1,5 +1,10 @@
-## Mr. Mueller's Ideal Afternoon
+## Stephanie's Ideal Afternoon
 
-The best way to relax after a long day is to eat ice cream and watch a movie.
+The best way to relax after a long day there is two choices
 
-The best ice cream is mint chocolate chip.
+A social relaxing long day
+-  is too go out with some friends/family and go watch some movies!
+
+
+A chill me time relaxing long day
+- Is to order some take out food and your favorite video games
